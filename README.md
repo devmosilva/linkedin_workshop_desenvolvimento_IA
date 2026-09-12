@@ -34,6 +34,7 @@ E, claro, aproveitem para se conectar comigo também 😄: [Matheus Silva](https
 - [Antônio Carlos Lima](https://www.linkedin.com/in/antonioc57/)
 - [Antonio Natanael Machado Colacino](https://www.linkedin.com/in/natanaelcolacino/)
 - [Arthur Henrique De Oliveira Alves](https://www.linkedin.com/in/arthur-alves-b12659184/)
+- [Arthur Henrique Pereira Guedes](https://www.linkedin.com/in/arthurhenriqueguedes/)
 - [Arthur Pereira Machado](https://www.linkedin.com/in/arthurpmachado/)
 - [Arthur Santos](https://www.linkedin.com/in/arthur-caetano-santos-02457036/)
 - [Augusto Accorsi](https://www.linkedin.com/in/augusto-accorsi/)

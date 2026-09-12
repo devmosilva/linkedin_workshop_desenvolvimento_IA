@@ -372,6 +372,7 @@ E, claro, aproveitem para se conectar comigo também 😄: [Matheus Silva](https
 - [Thiago Cruz](https://www.linkedin.com/in/hscthiago/)
 - [Thiago Dos Santos](https://www.linkedin.com/in/tdosantos/)
 - [Thiago Galvani](https://www.linkedin.com/in/thiago-galvani/)
+- [Thiago Giovanella](https://www.linkedin.com/in/tgiovanella)
 - [Thiago Ribeiro](https://www.linkedin.com/in/thiago-ribeiro-cloud-architect/)
 - [Thiago Siqueira](https://www.linkedin.com/in/thiago-donizeti-siqueira/)
 - [Thiago Zanatta](https://www.linkedin.com/in/thiago-zanatta/)
